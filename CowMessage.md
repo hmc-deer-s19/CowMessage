@@ -1,0 +1,1 @@
+ We're excited to have you in CS70, jpuzzo!   
